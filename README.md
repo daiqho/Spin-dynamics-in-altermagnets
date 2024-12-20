@@ -1,0 +1,1 @@
+# Spin-dynamics-in-altermagnets
